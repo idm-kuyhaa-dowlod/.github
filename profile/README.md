@@ -4,4 +4,4 @@
 
 
 
-## [👉👉 IDM Full v6.42 Build 40](https://freesoftcr.com/dl)
+## [👉👉 IDM Full v6.42 Build 40](https://freesoftcr.com/dl/)
